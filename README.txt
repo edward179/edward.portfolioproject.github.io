@@ -1,1 +1,3 @@
-Hi I'm Edward. Let's get in touch!
+Hi I'm Edward.
+
+Let's get in touch! 🌲💻😁
